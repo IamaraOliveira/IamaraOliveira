@@ -2,7 +2,7 @@
 
 
 
--  Sou ex intercambista 🇺🇲 e Estudante de Sistemas de Informação 🖥️
+-  Ex intercambista 🇺🇲 e Estudante de Sistemas de Informação 🖥️
 
 
 
